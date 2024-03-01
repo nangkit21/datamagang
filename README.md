@@ -1,0 +1,2 @@
+# datamagang
+ini foto magang
